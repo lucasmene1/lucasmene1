@@ -1,1 +1,1 @@
-sou o lucas, programo python e bem pouco de HTML
+sou o lucas, programo python tenho 13 anos
